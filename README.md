@@ -3,9 +3,9 @@ Concept art by lee seomin
 
 
 
-### Untitled 112
+### A boy walking on an unknown planet
 
- <img src="https://github.com/leeseomin/Abstract3/blob/main/art/Untitled112.png" width="90%">    
+ <img src="https://github.com/leeseomin/concept_art/blob/main/art/A%20boy%20walking%20on%20an%20unknown%20planet.png" width="70%">    
  
  <br/><br/>  
 
