@@ -1,5 +1,5 @@
 # concept_art
-Concept art by lee seomin
+Concept art works by LEE SEOMIN 
 
 
 
