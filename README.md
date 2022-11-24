@@ -17,7 +17,7 @@ Concept art works by LEE SEOMIN
  <br/><br/>  
  
  
-### Little prince walking desert
+### A girl sitting on the wall
 
  <img src="https://github.com/leeseomin/concept_art/blob/main/art/A%20girl%20sitting%20on%20the%20wall.png" width="40%">    
  
