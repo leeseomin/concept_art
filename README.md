@@ -19,5 +19,5 @@ Concept art by lee seomin
  https://twitter.com/Techne_0_1
   <br/>
 https://www.instagram.com/ilcheyou/  
- <br/>
+
  https://www.youtube.com/@leeseomin
