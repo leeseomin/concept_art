@@ -5,7 +5,7 @@ Concept art by lee seomin
 
 ### A boy walking on an unknown planet
 
- <img src="https://github.com/leeseomin/concept_art/blob/main/art/A%20boy%20walking%20on%20an%20unknown%20planet.png" width="60%">    
+ <img src="https://github.com/leeseomin/concept_art/blob/main/art/A%20boy%20walking%20on%20an%20unknown%20planet.png" width="50%">    
  
  <br/><br/>  
 
