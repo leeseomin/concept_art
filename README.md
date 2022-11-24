@@ -10,6 +10,14 @@ Concept art works by LEE SEOMIN
  <br/><br/>  
 
 
+### Little prince walking desert
+
+ <img src="https://github.com/leeseomin/concept_art/blob/main/art/A%20boy%20walking%20on%20an%20unknown%20planet.png" width="40%">    
+ 
+ <br/><br/>  
+ 
+ 
+
 
 
 ### Author and Creator
